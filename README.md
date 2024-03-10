@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @margoinfp, furry/RU
+- 👀 I’m interested in: biology,music,art and etc..
+- 🌱 I’m currently learning: html,css,js,php
+- 😄 Pronouns: he/him or they/them ☆
+- ⚡ Fun fact: только русские смогут прочитать это..
+- margoinfp.neocities! (wip)
+- I'm just a beginner, so don't hit me with slippers for stupid mistakes :') 
